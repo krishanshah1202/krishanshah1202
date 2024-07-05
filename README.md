@@ -1,4 +1,4 @@
-## 👋 Hi, I’m [@krishanshah1202](https://github.com/krishanshah1202)
+## 👋 Hi, I’m Krishan Shah
 
 ### 👀 I’m interested in:
 - Software Development
