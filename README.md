@@ -16,4 +16,4 @@
 
 ### 📫 How to reach me:
 - Email: [krishanshah1202@gmail.com](mailto:krishanshah1202@gmail.com)
-- LinkedIn: [www.linkedin.com/in/krishanshah1202](https://www.linkedin.com/in/krishanshah
+- LinkedIn: [www.linkedin.com/in/krishanshah1202]
